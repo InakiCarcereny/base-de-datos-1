@@ -1,4 +1,4 @@
-Grupo numero - 17
+Grupo numero 17
 
 Integrantes:
--De Pascale Valentin, Marcilese Joaquin, Iñaki Carcereny.
+De Pascale Valentin, Marcilese Joaquin, Iñaki Carcereny.
